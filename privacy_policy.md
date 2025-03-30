@@ -46,7 +46,7 @@ You have the right to:
 ✅ Ask for data deletion if applicable.
 ✅ Opt out of analytics tracking.
 
-For any requests, contact us at: [Your Email]
+For any requests, contact us at: emnkazm@gmail.com
 
 7. Changes to This Policy
 We may update this Privacy Policy periodically. Any changes will be posted on this page.
